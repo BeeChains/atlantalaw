@@ -1,2 +1,2 @@
 # atlantalaw
-Top Law Firms ATLANTA LAW domain
+Top Law Firms on ATLANTA LAW/ top level domain!
