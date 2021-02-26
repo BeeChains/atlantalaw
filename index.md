@@ -4,4 +4,4 @@
 
 - get a subdomain.ATLANTALAW like yourlawfirm.atlantalaw/
 
-- check out my [1timefeedomains/](http://home.1timefeedomains/)
+- Domains by [Inner I Net Company](http://shapereality.innerinetcompany.hns.to/)!
